@@ -1,5 +1,5 @@
 # [Digious Solutions](https://digioussolutions.com)
-WE ARE ON A MISSION TO BECOME THE GAME-CHANGERS IN THE DIGITAL AND TECHNOLOGY INDUSTRY. WITH A TALENTED TEAM OF PASSIONATE INDIVIDUALS WE ARE ON OUR WAY TO BEAT THE REST AND MAKE IT COUNT! WE ARE DIGIOUS!
+WE ARE ON A MISSION TO BECOME THE GAME-CHANGERS IN THE [DIGITAL AND TECHNOLOGY INDUSTRY](https://digioussolutions.com). WITH A TALENTED TEAM OF PASSIONATE INDIVIDUALS WE ARE ON OUR WAY TO BEAT THE REST AND MAKE IT COUNT! WE ARE DIGIOUS!
 
 Digious Solutions is the fastest leading [It Solutions and Marketing Agency](https://digioussolutions.com) providing services globally.
 
@@ -7,7 +7,7 @@ Here at Digious Solutions, we make sure to provide the best of our services for 
 we (Digious) not only provide the best of our services, but we also make sure our customers and treated professionally and are satisfied with what they received because their satisfaction is our priority throughout they are connected with us. 
 
 Vision :
-Our vision is to become the leading Marketing agency and to provide the best of our solutions globally. We believe that our growth is not self-dependent, our team plays a very important role in this development and we make sure to give our best not only to our customers but to all of our staff as well. At every step of Digious's growth, its employee's growth is also compulsory. we strictly believe in deserving nature and give every employee chance to prove their abilities at each stage of our hierarchy.   
+Our vision is to become the [leading Marketing agency](https://digioussolutions.com) and to provide the [best IT solutions globally](https://www.pinterest.com/digiouspin/). We believe that our growth is not self-dependent, our team plays a very important role in this development and we make sure to give our best not only to our customers but to all of our staff as well. At every step of Digious's growth, its employee's growth is also compulsory. we strictly believe in deserving nature and give every employee chance to prove their abilities at each stage of our hierarchy.   
 
 
 Passion :
