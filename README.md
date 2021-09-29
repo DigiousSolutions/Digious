@@ -1,7 +1,7 @@
 # [Digious Solutions](https://digioussolutions.com)
 WE ARE ON A MISSION TO BECOME THE GAME-CHANGERS IN THE DIGITAL AND TECHNOLOGY INDUSTRY. WITH A TALENTED TEAM OF PASSIONATE INDIVIDUALS WE ARE ON OUR WAY TO BEAT THE REST AND MAKE IT COUNT! WE ARE DIGIOUS!
 
-Digious Solutions is the fastest leading It Solutions and Marketing Agency providing services globally.
+Digious Solutions is the fastest leading [It Solutions and Marketing Agency](https://digioussolutions.com) providing services globally.
 
 Here at Digious Solutions, we make sure to provide the best of our services for any kind of field. Our talented team of graphic designers, website developers, Marketing specialists, Software developers, game developers, and debuggers keep track of modern codes and techniques to meet market requirements.
 we (Digious) not only provide the best of our services, but we also make sure our customers and treated professionally and are satisfied with what they received because their satisfaction is our priority throughout they are connected with us. 
@@ -16,3 +16,5 @@ Our Passion strives against new technologies and ideas. Digious makes sure to tr
 
 Trust :
 Our first and foremost priority is always to be quick at understanding and providing deliverables to our customers before the project timeline is stated which always played an important role for our customers to trust us.
+
+Our Socials Channels : [Facebook](https://www.facebook.com/Digious) | [Twitter](https://twitter.com/digioustweets) | [LinkedIn](https://www.linkedin.com/in/digious-solutions-697759209/) | [Instagram](https://www.instagram.com/digiousofficial/) | [Pinterest](https://www.pinterest.com/digiouspin/)
